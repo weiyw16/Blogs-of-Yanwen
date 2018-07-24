@@ -1,4 +1,8 @@
-## Blog of Yanwen Wei (魏衍雯)
+Yanwen Wei (魏衍雯)
+====
+weiyw17@gmail.com
+--------
+
 
 ### Academic Experience
 
